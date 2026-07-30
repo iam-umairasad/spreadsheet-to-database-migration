@@ -220,3 +220,13 @@ are needed.
 
 **Umair Asad**
 [Umair Asad](https://github.com/umairasad-data)
+
+---
+
+---
+
+## 📬 Contact & Connect
+
+**Email:** [iam.umairasad@gmail.com](iam.umairasad@gmail.com)
+* **Portfolio:** [yourportfolio.com](https://yourportfolio.com)
+* **Location:** Wah Cantt, Pakistan *(Open to Relocation Opportunities)*
